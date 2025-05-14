@@ -81,7 +81,7 @@ Tính đến thời điểm hiện tại (năm 2025), **không có bất kỳ b�
 
 ### 1. Mở tài khoản:
 
-- Truy cập [www.xtb.com](https://link-pso.xtb.com/pso/z78D7.
+- Truy cập [www.xtb.com](https://link-pso.xtb.com/pso/z78D7).
 - Chọn “Mở tài khoản”, điền thông tin.
 - Tải lên giấy tờ xác minh danh tính.
 - Xác nhận email và đợi duyệt tài khoản.
