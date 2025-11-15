@@ -130,6 +130,6 @@ Không yêu cầu cụ thể với tài khoản Standard. Có thể bắt đầu
 
 ## ✅ KẾT LUẬN
 
-Sàn XTB là một trong những **sàn giao dịch uy tín nhất** hiện nay với nền tảng mạnh mẽ, sản phẩm đa dạng và hỗ trợ tốt. Nếu bạn đang tìm kiếm một môi trường giao dịch **an toàn, minh bạch và thân thiện với người Việt**, XTB là lựa chọn đáng cân nhắc.
+[Sàn XTB](https://chiasekinang.com/san-xtb/) là một trong những **sàn giao dịch uy tín nhất** hiện nay với nền tảng mạnh mẽ, sản phẩm đa dạng và hỗ trợ tốt. Nếu bạn đang tìm kiếm một môi trường giao dịch **an toàn, minh bạch và thân thiện với người Việt**, XTB là lựa chọn đáng cân nhắc.
 
 👉 **Bắt đầu với XTB ngay hôm nay để trải nghiệm đầu tư hiệu quả và chuyên nghiệp!**
